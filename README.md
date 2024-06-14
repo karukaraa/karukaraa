@@ -1,4 +1,4 @@
-git config global username "karukaraa"
+call me as "karukaraa"
 - 👀 I’m interested in ... tea anime and cybersecurity
 - 🌱 I’m currently learning ...cybersecurity
 - 💞️ I’m looking to collaborate on ...
