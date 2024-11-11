@@ -1,8 +1,8 @@
-call me as "karukaraa"
+call me as "Arjun"
 - 👀 I’m interested in ... tea anime and cybersecurity
 - 🌱 I’m currently learning ...cybersecurity
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ... ramankartha626@gmail.com
+- 📫 How to reach me ... arjunkichu326@gmail.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
